@@ -40,7 +40,7 @@ Consumption of the alcohol, use of the drugs and smoking is strictly prohibited 
 **11. DECLARE FIREARMS** – 
 All firearms/dangerous weapons of any sort, any explosive, trap or poison are not allowed within the center premises;
 
-** Enactment**
+**Enactment**
 
 If somebody requests that you stop a certain behavior (even if said behavior is not explicitly covered in this document), you are expected to comply immediately. Don't get defensive; even if you didn't intend to offend, accept responsibility, consider apologizing, and work with the other party to fix the situation. A mistake is a chance to learn and/or teach. Use the opportunity to better yourself.
 Enforcement of the Code of Conduct is essential. If there is no enforcement, then the Code of Conduct becomes a feel-good document without value. Individuals should feel empowered to call out violations publicly or privately. 
