@@ -2,7 +2,7 @@
 
 Dear Visitor,
 
-We would like to take this opportunity to welcome you to the Temperate Horticulture Development Center in Mustang. To ensure a pleasant and successful trip through our center, kindly adhere to the rules and regulations. Transgression of the rules and regulations as summarized below may result in prosecution and or penalties. 
+We would like to take this opportunity to welcome you to the Temperate Horticulture Development Center in Mustang. To ensure a pleasant and successful trip through our center, kindly adhere to the rules and regulations. Transgression of the rules and regulations, as summarized below, may result in prosecution and or penalties. 
 
 **PLEASE LEAVE NOTHING BUT FOOTPRINTS AND TAKE NOTHING WITH YOU BUT PICTURES AND WONDERFUL MEMORIES.**
 
