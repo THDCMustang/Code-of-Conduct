@@ -20,7 +20,7 @@ All the plants inside the center are protected. This means that it is forbidden 
 Photographic parties are required to adhere to all the above demands. Note that **COMMERCIAL photography** is only allowed with a valid permit from the chief of the center;
 
 **5. CHILDREN** – 
-For safety reasons parents/guardians should look after their young ones at all the time and will be held responsible for their acts.
+For safety reasons parents/guardians should look after their young ones at all the time and will be held responsible for their acts;
 
 **6. LITTER-FREE ZONE** – 
 Littering is prohibited. Deposit or leaving of any litter except in receptacles for that purpose is not tolerable;
